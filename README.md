@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @eyesonoussama
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning web developpement
+- contact me on instagram: c___oussama
